@@ -1,4 +1,4 @@
-# PR_mejia_suarez_1197
+# PR_mejia_suarez_1197_manejo_de_archivos_python
 # punto 1:
 ![image](https://github.com/user-attachments/assets/a7a863aa-0287-40a9-b502-d838f7a896f9)
 # punto 2:
