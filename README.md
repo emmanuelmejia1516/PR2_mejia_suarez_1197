@@ -33,8 +33,13 @@
 ![image](https://github.com/user-attachments/assets/fa60469a-7b20-4ee4-ae3f-25421fb19692)
 ![image](https://github.com/user-attachments/assets/13327e1c-1c7f-4732-97c2-7a4dddb03624)
 # punto 8:
-
-
+![image](https://github.com/user-attachments/assets/377c58c8-5bb4-459c-9ef8-359c22df72e7)
+![image](https://github.com/user-attachments/assets/aee5a187-2528-4c74-b04c-8cfc9dfec3a5)
+# resultado:
+![image](https://github.com/user-attachments/assets/ad7efb46-9bb6-4b61-b76b-f79e7fea3984)
+![image](https://github.com/user-attachments/assets/c8ae148b-8e6b-4e5d-ae3f-ac8cc589fa76)
+# "si no existiera el archivo"
+![image](https://github.com/user-attachments/assets/b1725aa8-6671-40ec-8f9c-c496c400ca6d)
 # punto 9:
 ![image](https://github.com/user-attachments/assets/27f2e3b4-e30f-49c2-ac2c-f72812e18342)
 ![image](https://github.com/user-attachments/assets/fbf57414-586e-4fa6-8a35-3828bc41a3cb)
